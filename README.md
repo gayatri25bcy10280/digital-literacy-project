@@ -55,7 +55,7 @@ A Digital Literacy Awareness Quiz came together through Google Forms, part of th
 Now I see why pairing hands-on tech skills with teamwork apps matters. Through this course, learning shifted - platforms became helpers, not just tasks. Working smarter came into focus when tools lined up with study needs. Outcomes grew clearer once daily workflows changed. Preparation for what comes after school started feeling real, simply by using what’s available.
 <br/><br>
 Link:
-https://drive.google.com/file/d/1Q9ZQTH8GpO3vaH3kXSwNl8fdZjClNjZ-/view?usp=sharing
+https://drive.google.com/file/d/1Rlcmmrv3_Klxc1Vvkt8QIsd0vzO2BPTL/view?usp=sharing
 <br/><br>
 
 
@@ -69,7 +69,7 @@ A separate checklist came together around how students handle themselves online.
 Looking back, I see how tone matters when typing messages. Clarity popped up again and again as a key piece. Professionalism wasn’t just suggested - it showed up in every example. A shaky message can confuse people, even if facts are right. Mistakes in wording might shut doors without warning. The work sharpened how I shape replies now. Presenting myself feels more grounded than before. Academic spaces feel less stiff after practicing. Others get clearer signals from what I write. Helping peers adjust their style came naturally along the way. Not everything clicked at first - but slowly it did.
 <br/><br>
 Link:
-https://drive.google.com/file/d/1UE0DnE4gRjdTXaNl6Mef-OjMPL4u_hVu/view?usp=sharing
+https://drive.google.com/file/d/1Hx1lfSzC3ovLk7TVJ5uq0AWt-bFYxvuz/view?usp=sharing
 <br/><br>
 
 
