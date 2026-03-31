@@ -2,9 +2,9 @@
 <br>
 Digital Literacy Project
 <br/><br>
-Name: Ananya Kesharwani
+Name: Gayatri Kishor Solunke
 <br/><br>
-Reg No: 25BCY10281
+Reg No: 25BCY10280
 <br/><br>
 Branch: B.Tech CSE
 <br/><br>
@@ -26,7 +26,7 @@ What you see breaks down core ideas - like what digital literacy really means, u
 This time around, communication got sharper because of how ideas took shape visually. Shaping the message meant sorting pieces carefully, yet keeping things fresh. A tight space pushed choices - only key bits stayed, even when pressure built to include more. Clarity had to win, so visuals lined up evenly, each element holding its ground. Picking what truly mattered? That part tested patience more than expected.
 <br/><br>
 Link:
-https://canva.link/v7blsdw1csr0ntm
+https://canva.link/s0yj63dulyi5pda
 <br/><br>
 
 
@@ -40,7 +40,7 @@ Building out profiles happened across places like GitHub, LinkedIn, besides a fe
 Looking back, I see why keeping an online presence steady matters more than I first thought. Because of this, spotting ways social media ties into school and job paths became clearer. What stood out most? Figuring out how to show who I am without sounding forced came through practice. Over months ahead, using those spaces with purpose feels like something now doable.
 <br/><br>
 Link:
-https://drive.google.com/file/d/1D7ZIHcHqxeNI2xwBzGyLuEYyHa5RCGDV/view?usp=sharing
+https://drive.google.com/file/d/1aJvIpvZr22FaMji1hEF8Or9XIOiX8C7h/view?usp=sharing
 <br/><br>
 
 
